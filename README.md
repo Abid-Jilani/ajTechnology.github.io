@@ -1,0 +1,1 @@
+# ajTechnology.github.io
